@@ -1,1 +1,1 @@
-The Link: https://resume.github.io/
+The Link: https://omariv.github.io/
